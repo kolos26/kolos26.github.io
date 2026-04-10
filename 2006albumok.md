@@ -10,6 +10,10 @@ Illetve, ha tudom, hogy miket hallgatsz, akkor nagyobb eséllyel vannak itt a te
 
 
 
+
+
+
+
 **Alvin és a Mókusok** - *Mi ilyenkor szoktunk sírni* ([Spotify](https://open.spotify.com/album/5CId6mnWwasp0cBv7zczs2?si=qBuUHOUtTyK-ZISuxCo_ag) [YouTube](https://youtube.com/playlist?list=OLAK5uy_kNFNCQO7_O6oCOQG2-dCts_XVt7uSw0VM&si=2ciwuqScfgkiA4nJ))
 
 **Angels & Airwaves** - *We Don't Need to Whisper* ([Spotify](https://open.spotify.com/album/6E3jsbFuGHYFoDx5zcMYV6?si=gOLnPCIJQC-M44l7YUrWxA) [YouTube](https://youtube.com/playlist?list=OLAK5uy_n4SW8HY5xdHcbeKFu2j4Vlbd2pmSV_ebM&si=WQh4py8bJr7VzifI))
