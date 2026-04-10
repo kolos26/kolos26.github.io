@@ -8,11 +8,7 @@ De azért majdnem XD
 
 Illetve, ha tudom, hogy miket hallgatsz, akkor nagyobb eséllyel vannak itt a te kedvenceid is. Valamint voltak előadók, akiket csak valamiért fontosnak tartottam megemlíteni.
 
-
-
-
-
-
+---
 
 **Alvin és a Mókusok** - *Mi ilyenkor szoktunk sírni* ([Spotify](https://open.spotify.com/album/5CId6mnWwasp0cBv7zczs2?si=qBuUHOUtTyK-ZISuxCo_ag) [YouTube](https://youtube.com/playlist?list=OLAK5uy_kNFNCQO7_O6oCOQG2-dCts_XVt7uSw0VM&si=2ciwuqScfgkiA4nJ))
 
